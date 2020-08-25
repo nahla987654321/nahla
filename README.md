@@ -1,2 +1,0 @@
-# nahla
-like and subscribe
